@@ -1,2 +1,2 @@
-# smkijo
+# yanuar.github.io
 sekolah
