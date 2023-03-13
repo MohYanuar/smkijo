@@ -1,0 +1,2 @@
+# smkijo
+sekolah
